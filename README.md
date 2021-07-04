@@ -1,5 +1,19 @@
-# Portfolio is here !! 
+# Took almost 12 Days and 6 Nights to build this portfolio :sunglasses:
 
- To Check it Out  <a href="https://shu6h4m.github.io/in/"> Click Here </a> !
 
- ![sdf](https://user-images.githubusercontent.com/37971771/118632613-39844000-b7ee-11eb-8f67-16db5f4915c7.png)
+*To Check it Out  <a href="https://shu6h4m.github.io/in/"> **Click Here** </a> !* :metal:
+
+
+![PoFolio](https://user-images.githubusercontent.com/37971771/124372775-93f83380-dcaa-11eb-9deb-500177c2b178.png)
+
+
+----------------------------------------------------------------------------------------------------
+
+Connect with me on <a href="https://www.linkedin.com/in/shu6h4m/"> LinkedIn </a> | <a href="https://twitter.com/shu6h4m"> Twitter </a> | <a href="https://www.instagram.com/shu6h4m/"> Instagram </a> | <a href="https://www.facebook.com/shu6h4m"> Facebook </a> | <a href="https://www.shu6h4m.in"> My Blogs </a>
+
+----------------------------------------------------------------------------------------------------
+</br> 
+
+
+
+                                  Thankyou for Scrolling this long 🍻
