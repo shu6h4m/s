@@ -1,4 +1,4 @@
-# Took almost 12 Days and 6 Nights to design this portfolio  :sunglasses: 
+# Took almost 12 Days and 6 Nights to design this portfolio  :sunglasses:
 
 
 <h3 align="center">:metal: To Check it Out  <a href="https://shu6h4m.github.io/s/"> Click Here </a> ! :metal:</h3>
